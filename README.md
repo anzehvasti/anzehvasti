@@ -1,4 +1,4 @@
-## Hi! I'm Anže 👋 A junior web developer at Escapebox Gamification.
+## Hi! I'm Anže 👋 A junior web developer.
 
 - 😽 Giving home to 3 purrfectly fluffy cats.
 - 🌍 Mother Earth loves me selflessly, therefore I try to give love back.
