@@ -2,7 +2,7 @@
 
 - 😽 Giving home to 4 purrfectly fluffy cats.
 - 🌍 Mother Earth loves me selflessly, therefore I try to give love back.
-- ✨ Favourite video game: Minecraft (or Stardew Valley).
+- ✨ Favourite video game: Minecraft or Stardew Valley.
 - ⚡ I can solve Rubik's cube.
 - 🌱 Nature is awesome!
 
